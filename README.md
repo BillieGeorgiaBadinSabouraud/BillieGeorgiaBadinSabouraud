@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on anything which resonates with me and my home projects as well.
 - 📫 You can reach me on LinkedIn
 - 😄 My pronouns are she/her
-- 🏳️‍⚧️ I am as the flag suggests ans live in Australia 🦘
+- 🏳️‍⚧️ I am as the flag suggests and live in Australia 🦘
 
 <!---
 BillieGeorgiaBadinSabouraud/BillieGeorgiaBadinSabouraud is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
